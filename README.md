@@ -1,1 +1,3 @@
 # PROJECTTERMINATED
+
+This project was terminated a long time ago the only repo that was made public out of the 4 repos was the website that I just made private tabbies was not a take peoples money and go type nft group because no one made any money the community was strong and we was going somewhere but me and the other developer and way too much workload and the nft project eventually faded away no money made or lossed this will go down as a project me and the other developer loved working on toegther but one that will be remebered as a failure mainly due to managment reasons from the higher ranks of the group.
